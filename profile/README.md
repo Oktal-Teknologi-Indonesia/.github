@@ -1,2 +1,2 @@
-Deliver the Software You Need
+Deliver the Software You Need.
 No More, No Less
